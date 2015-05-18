@@ -1,4 +1,2 @@
 Nous sommes installés à l'anticafé vers Les Halles afin que Henri m'apprenne à me servir de github.
-
-et nous sommes sur master
-modification de m....
+Fais moi penser à regarder aussi le wiki avec toi. 
